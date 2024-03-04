@@ -1,1 +1,2 @@
 https://github.com/Harshadevan/Harshini.git# Harshini
+Energy and utilities play a crucial role in powering societies, driving economic activities, and sustaining daily life. Reliable energy sources are essential for industries, homes, and technological advancements, contributing to overall economic development. Efficient utility services, such as water and sanitation, are fundamental for public health and well-being. Balancing energy needs with environmental sustainability is also critical for a resilient and sustainable future.
